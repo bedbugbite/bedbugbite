@@ -1,3 +1,3 @@
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31oyb2yunequo7vj2piju25e5tri&cover_image=true&theme=novatorem&show_offline=false&background_color=252827&interchange=false&bar_color=137b70&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+i am ryder.
 
-racer  he/him  usually offtab / afk  w21
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31livhve32iik7l5hmzariq5qcou&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1b1b1d&interchange=false&bar_color=ffa994&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
