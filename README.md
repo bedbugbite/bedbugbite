@@ -1,3 +1,15 @@
-i am ryder.
+<div align="center">
+  <img height="35" src="https://64.media.tumblr.com/62d061400df69bc6d98440454e02baea/8c5b366b4772eca8-65/s1280x1920/1b821dc0993f4ad83d81994b5f7f53cb79b50806.gifv"  />
+</div>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31livhve32iik7l5hmzariq5qcou&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1b1b1d&interchange=false&bar_color=ffa994&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+###
+
+<h5 align="center">parker . he/bro . jolly fellow </h5>
+
+###
+
+<div align="center">
+  <img height="35" src="https://64.media.tumblr.com/62d061400df69bc6d98440454e02baea/8c5b366b4772eca8-65/s1280x1920/1b821dc0993f4ad83d81994b5f7f53cb79b50806.gifv"  />
+</div>
+
+###
